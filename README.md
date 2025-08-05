@@ -1,1 +1,1 @@
-# My-engineering-journey-blog-and-portfolio
+# My engineering journey-blog and portfolio
